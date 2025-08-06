@@ -1,4 +1,4 @@
-# Adibuja Electrical Components & Industrial Electronics Supplier USA
+# Adibuja | Electrical Components & Industrial Electronic Suppliers Marketplace in USA
 
 Discover a trusted source for **electrical components supplier US**, **automation electronics USA**, and a full range of industrial and commercial electronic products. From **computer peripherals USA** to **programmable logic controllers USA**, our comprehensive inventory supports manufacturers, repair shops, and businesses nationwide.
 
